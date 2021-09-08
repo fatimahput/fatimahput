@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @fatimahput
-- 👀 I’m interested in UI/UC Designer
+- 👀 I’m interested in UI/UX Designer
 - 🌱 I’m currently learning at Universitas Pembangunan Nasional Veteran Jakarta
 
 
